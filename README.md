@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NithinChords
-- 👀 I’m interested in Graphic designing , Music production , Software developer , Game developer...
+- 👀 I’m interested in Graphic designing , Music production , Software developing , Game developing...
 - 🌱 I’m currently learning Designing 
 - 💞️ I’m looking to collaborate on International Companies 
 - 📫 How to reach me : Contact me on my Instagram @nithinchords
